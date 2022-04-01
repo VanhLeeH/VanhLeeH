@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @VanhLeeH 🙇
 - 👀 I’m interested in sales, writing, marketing and advertising jobs ☎🔈
+- 😄 I can also handle other jobs according to your wishes.
 - 🌱 I’m currently learning at university
 - 💞️ I have a girlfriend now 😍
 - 📫 How to reach me: ⬇⬇⬇
